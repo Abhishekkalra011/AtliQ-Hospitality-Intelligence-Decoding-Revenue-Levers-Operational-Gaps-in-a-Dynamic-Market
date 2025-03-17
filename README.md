@@ -1,0 +1,1 @@
+# AtliQ-Hospitality-Intelligence-Decoding-Revenue-Levers-Operational-Gaps-in-a-Dynamic-Market
